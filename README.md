@@ -1,2 +1,8 @@
 # Celia
-My Personal Repo
+
+Hi there 
+
+
+I am currently learning cybersecurity with SFHA 
+
+Ask me about cybersecurity 😁
